@@ -2,53 +2,57 @@
 
 ![Dragon_Ball_Z_Logo](https://user-images.githubusercontent.com/120328631/207635221-537b0b10-ef3f-4e97-880f-025444473058.png)
 ))
+
+
 *Story*
 
-Fairy Tail is a shounen manga series by Mashima Hiro that started August 23, 2006. A Fairy Tail anime, produced by A-1 Pictures and Satelight was created on October 12, 2009.
+Dragon Ball Z[c] is a Japanese anime television series produced by Toei Animation. Part of the Dragon Ball media franchise, it is the sequel to the 1986 Dragon Ball anime series and adapts the latter 325 chapters of the original Dragon Ball manga series created by Akira Toriyama, which ran in Weekly Shōnen Jump from 1988 to 1995. The series aired in Japan on Fuji TV from April 1989 to January 1996 and was later dubbed for broadcast in at least 81 countries worldwide.[6]
 
-Fairy Tail follows the story of Lucy Heartfilia and the exploits of the wizard guild Fairy Tail. Lucy tends to team up with Dragon Slayer and fire wizard Natsu Dragneel, a talking blue cat named Happy, ice wizard Gray Fullbuster, and the most powerful female wizard in the guild, Erza Scarlet with the power of requipping her weapons and armor.
+Dragon Ball Z continues the adventures of Son Goku in his adult life as he and his companions defend the Earth against villains including aliens (Vegeta, Frieza), androids (Cell), and magical creatures (Majin Buu). At the same time, the story parallels the life of his son, Gohan, as well as the development of his rivals, Piccolo and Vegeta.
 
-The guild Fairy Tail is named Fairy Tail because of the mystery of whether or not fairies have tails. From episode 1.27 The Two Dragon Slayers: "No one knows if fairies have tails or not, or even if fairies exist at all. Thus the name signifies eternal mystery, eternal adventure..." (Guild master Makarov Dreyar said to a young Natsu).
+Due to the success of the anime in the United States, the manga chapters making up its story were initially released by Viz Media under the Dragon Ball Z title. The anime's popularity has also spawned numerous media and merchandise that has come to represent the majority of content within the Dragon Ball franchise. Dragon Ball Z remains a cultural icon through numerous adaptations and re-releases, including a remastered broadcast titled Dragon Ball Z Kai.[d]
+
+Dragon Ball Z has since been followed by two sequel series: Dragon Ball GT (1996–1997) and Dragon Ball Super (2015–2018).
 
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------
 
-# * **Fairy Tail Characters**
-1. **Natsu Dragneel**
-- Fire Wizzard/Dragon Slayer - Natsu was revived by his brother Zeref and transformed into the demon known as “E.N.D.” This means he is already part demon and part human
-2. **Zeref Dragneel**
-- Dark Wizzard - Despite being hundreds of years old, Zeref has the appearance of a young man. He wears high-collared red (black in the anime) and tan robes with gold trim, along with a large, flowing white toga draped around his torso. He has short black hair, dark eyes, and abnormally sharp canines. 
-3. **Mavis Vermillion**
-- First Master/Powerful creator of Fairy magic/ projection magic - the first Guild Master and co-founder of the Fairy Tail Guild. Despite her body being comatose and sealed within a Lacrima that has become to be known as Fairy Heart, she continues to interact with the guild and its members as a Thought Projection.
-4. **Erza Scarlet**
-- Requip Magic - Erza is a young woman with long, scarlet hair and brown eyes. She lost her right eye as a child and now has an artificial one which was created by Porlyusica. She has a slender, voluptuous figure that Lucy Heartfilia described as "amazing."
-5. **Gray Fullbuster**
-- Ice Magic - Gray's most prominent feature is his spiky black-colored hair. He has dark blue eyes, and his body is toned and muscular.
-6. **Lucy Heartfila**
-- Celestial Wizzard - Lucy practices Celestial Spirit Magic, which allows her to summon Celestial Spirits, Magical beings residing in the Celestial Spirit World, using the Keys of their respective Gates.
-7. **Wendy Marvell**
-- Wind wizzard/Dragon Slayer -  Her Magic also has support spells, which can increase attack power and speed, to both herself and her others. As stated by Carla, Wendy can eat air, but can't heal as well in polluted areas.
-8. **Mirajane Strauss**
-- Demonic equip magic - Mirajane is a skilled user of Take Over, a type of Magic which, as the name suggests, allows her to take over the powers and appearances of particular creatures she really "knows". She shares such Magic with her siblings Elfman and Lisanna, something which made them known as the "Take Over Siblings". 
-9. **Makarov Dreyar**
-- Powerful wizzard -both the 3rd and 6th Guild Master of the Fairy Tail Guild, as well as one of the Ten Wizard Saints. He is one of the major supporting characters in Fairy Tail.
-10. **Juvia Lockser**
-- Water magic -  Mage of Fairy Tail and is a former S-Class Mage of the now-disbanded Phantom Lord guild where she was a member of its elite team, the Element 4, with her corresponding element being water.
-11. **Elfman Strauss**
-- Beast equip Magic -  Mage of the Fairy Tail Guild and the brother of Mirajane Strauss and Lisanna Strauss. He is also powerful at take over magic.
-12. **Lissana Strauss**
-- Anima equip magic -  Mage of the Fairy Tail Guild, the younger sister of Elfman and Mirajane, and a childhood friend of natsu.
-13. **Laxus Dreyas**
-Thunder wizzard/Dragon Slayer - Second Generation Lightning Dragon Slayer and an S-Class Knight of the Grand Alliance. He is also the grandson of Makarov Dreyar.
-14. **Gildarts Clive**
-- Crush Magic - Gildarts is a laid-back, kind and easygoing person who has great interest and the utmost faith in the new generation of Fairy Tail's Mages.
-15. **Cana Alberona**
-- Card magic wizzard - As a very young girl, Cana came to Fairy Tail after the death of her mother to find her father, Gildarts Clive, who was a member of Fairy Tail.
+# * **Dragon Ball Z**
+1. **Son Goku**
+-First introduced as a young boy, Son Goku (孫悟空, Son Gokū) is depicted as immensely strong, pure of heart, and extremely competitive, but dedicated to defending his adopted home Earth from internal or external threats. Although he appears human, it is later revealed that Goku is a Saiyan, and that his original name is Kakarrot.
+2. **Bulma**
+- Bulma (ブルマ, Buruma) first appears as a teenager using the Dragon Radar, a fictional device she created to detect the energy signal emitted by Dragon Balls. She is led to Goku's location by the signal emitted by the four-star ball in his possession and recruits him as a bodyguard while hoping to get his four-star ball to grant her wish for a boyfriend. 
+3. **Krillin**
+- F**irst Master/Powerful creator of Fairy magic/ projection magic - the first Guild Master and co-founder of the Fairy Tail Guild. Despite her body being comatose and sealed within a Lacrima that has become to be known as Fairy Heart, she continues to interact with the guild and its members as a Thought Projection.*
+4. **Piccolo**
+- Piccolo (ピッコロ, Pikkoro) is the spawn of King Piccolo, created to get revenge on Goku in the wake of his death, and subsequently assumes the role as the "evil half" of Kami. However, after being narrowly defeated by Goku, he must team up with him and his friends when opposing the invading Saiyans, including training Goku's son Gohan
+5. **Son Gohan**
+- Son Gohan (孫悟飯) is Goku's eldest son with Chi-Chi, who first appears at the age of four. He is kidnapped by Goku's brother, Raditz, and locked up in a space pod. However, his temper flares and he bursts out of the space pod, dealing a blow to Raditz and knocking himself out. After the battle, Piccolo takes and trains him for a year as he realizes Gohan's potential.
+6. **Vegeta**
+- Vegeta (ベジータ, Bejīta) is the last prince of the Saiyan warrior people, and the fourth generation of the Saiyan royal bloodline to bear his namesake. He is first shown conquering a planet with his partner Nappa by listening to Raditz's fight on Earth using their scouters. The two of them travel to Earth in search of the Dragon Balls, and he ends up fighting a newly revived Goku, but retreats after persistent attacks by Yajirobe, Krillin, and Gohan.
+7. **Trunks**
+- Trunks (トランクス, Torankusu) first appears as a mysterious young man who easily defeats Frieza and his father King Cold prior to Goku's return to Earth from Planet Namek.
+8. **Master Roshi**
+- Kame-Sen'nin (亀仙人, "Turtle Hermit"), also known as Muten-Rōshi (武天老師, lit "Martial Arts Genius Master"), which is rendered as "Master Roshi" in the English versions, is a lecherous elderly martial arts master instructor that lives on a small island and is the inventor of the Kamehameha technique. 
+9. **Yamcha**
+- Yamcha (ヤムチャ, Yamucha), known as Zedaki in the Harmony Gold dub, is introduced as a desert bandit alongside his companion Puar, trying to steal Goku and Bulma's Dragon Balls. He becomes nervous when near women. He eventually becomes Goku's ally, starts a relationship with Bulma, and later becomes a pupil of Master Roshi..
+10. **Tien Shinhan**
+-Tenshinhan (天津飯テンシンハン), named Tien Shinhan in the Funimation anime dub and also known as Shinto in the Harmony Gold dub, is first introduced, having been trained by Master Roshi's rival Master Shen, trying to kill Goku and his fellow-students. Later, he and Chiaotzu become their allies, fighting against King Piccolo's minion until Goku arrives.
+11. **Chiaotzu**
+-Chaozu (餃子チャオズ), Chiaotzu in the English anime dub, is a small human that resembles a jiangshi with white skin, red cheeks, and has one hair under his hat. Although he is not physically strong, Chiaotzu is skilled with psychokinesis and telepathy.
+12. **Bardock**
+- Bardock (バーダック, Bādakku)—or Burdock in Viz's English manga translation—is the husband of Gine (ギネ), and the father of Raditz and Kakarrot (Goku).
+13. **Android 18**
+Android 18 (人造人間18号, Jinzōningen Jū Hachi Gō, lit. "Artificial Human #18") is a Red Ribbon Android created by Doctor Gero, and the sister of Android 17.
+14. **Son Goten**
+- on Goten (孫悟天) is the youngest son of Goku and Chi-Chi.
+15. **Beerus**
+- Beerus (ビルス, Birusu) is a deity who appears in the fourteenth and fifteenth Dragon Ball Z films, as well as in Dragon Ball Super. .
 
 -------------------------------------------------------------------------------------------------------------------------------------------------
-# *If you want to go in a world full of magic you can watch it [here!](https://9anime.vc/) by typing the title "Fairy tail".*
+![top-10-strongest-most-powerful-dragon-ball-z-characters-of-all-time](https://user-images.githubusercontent.com/120328631/207639576-517f7a31-7423-42e6-a4b1-1a6542a4d039.jpg)
+
 -------------------------------------------------------------------------------------------------------------------------------------------------
 
-![Fairy 1](https://user-images.githubusercontent.com/120329371/206922398-c5052db1-9d14-423a-ad0a-44a9266f7e6a.jpeg)
- # *Be part of our Guild!*
+
 
