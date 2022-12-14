@@ -1,6 +1,7 @@
  # **"DragonBall Z"**
 
-![562222](![image](https://user-images.githubusercontent.com/120328631/207634224-845fd646-8535-494f-9b9f-fe4d1b8bfd89.png))
+![562222](![![Dragon_Ball_Z_Logo](https://user-images.githubusercontent.com/120328631/207635104-fc2f7dc7-4ade-44c2-bc76-e7d624fbc3da.png)
+))
 *Story*
 
 Fairy Tail is a shounen manga series by Mashima Hiro that started August 23, 2006. A Fairy Tail anime, produced by A-1 Pictures and Satelight was created on October 12, 2009.
