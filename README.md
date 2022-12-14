@@ -1,6 +1,6 @@
  # **"DragonBall Z"**
 
-![562222](![![Dragon_Ball_Z_Logo](https://user-images.githubusercontent.com/120328631/207635104-fc2f7dc7-4ade-44c2-bc76-e7d624fbc3da.png)
+![Dragon_Ball_Z_Logo](https://user-images.githubusercontent.com/120328631/207635221-537b0b10-ef3f-4e97-880f-025444473058.png)
 ))
 *Story*
 
